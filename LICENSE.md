@@ -1,4 +1,4 @@
-# 
+# Audacity for PC | Audacity for Windows secure Template: normalization & batch-processing is the best Audacity for PC | Audacity for Windows template, featuring normalization and
 
 
 
